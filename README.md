@@ -15,3 +15,6 @@ http://fullten-plums.com.tw/en/index.htm
 http://a.parsons.edu/~steim512/ourtype/index.html
 -I like very much collectivity between strangers. Especially to figure out and generate solutions.
 
+http://dismagazine.com/disco/59592/sonic-chatroulette/
+-two (or more) people may be at the same time on this website. 
+
